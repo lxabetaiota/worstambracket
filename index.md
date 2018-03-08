@@ -9,21 +9,37 @@ Scroll to the bottom for voting for next round
 In the second round. Results from the previous round:
 
 - **22. Dave vs. 43. Nico** - Closer than expected, with Dave pulling out a 6-3 victory **Dave advances**
+
 - **27. James vs. 38. Pheng** - Ended in a tie 4-4! The matchup went to OT Cee-Lo and James unfortunately rolled a 1-2-3 on his first roll **James Advances**
+
 - **19. Sabrick vs. 46. Kenny** - 6-2 Sabrick **Sabrick advances**
+
 - **30. Hodor vs. 35. Erik** - Erik squeaks by to the next round with a 4-3 victory **Erik advances**
+
 - **23. Cisco vs. 42. Joe A** - Cisco pulls out an easy victory 6-2, maybe Joe needs to try drinking some more Burnetts **Cisco advances**
+
 - **26. Keith vs. 39. Joey H** - Low scoring affair, Keith wins 5-1 **Keith advances**
+
 - **18. Angelo vs. 47. Pat** - No surprise here, Angelo drops Pat with a shutout 6-0 **Angelo advances**
+
 - **31. Jason vs. 34. Pete L** - Pete complaining openly about the selection committee probably hurt his chances here, he won 5-2 **Pete advances**
+
 - **21. Mike George vs. 44. Felice** - The AM for a week wins with a Virginia like score of 4-1 **Mike George advances**
+
 - **28. Joe Camel vs. 37. Cole** - Our 2nd shutout, with Camel dropping Cole 6-0 - **Camel advances**
+
 - **20. Kurtis vs. 45. Eisenlord** - Much closer than expected, Eisenlord packing 12 girls into a single ride just barely dropped him below Kurtis. Kurtis advances 4-3 - **Kurtis advances**
+
 - **29. Matt L vs. 36. Klem** - Raptor arms do not make cleaning easily. The voters clearly thought so as well. Klem advances 6-3 **Klem advances**
+
 - **24. Dave Forge vs. 41. Greg** - Somehow Greg lost this one to a fictional character 4-3 **Greg advances**
+
 - **25. Billy Ma vs. 40. Jon Climan** - Billy Ma, the wunderkind of a brother, loses to Climan 6-3 **Climan advances**
+
 - **17. Brooks vs. 48. Crean** - The most shocking upset of the round, Crean edges out Brooks 4-3 **Crean advances**
+
 - **16. Crowley vs. 49. Cosgrove** - Crowley wins 6-1 in may be the last installment of the Ginger Bowl before he loses the rest of his hair **Crowley advances**
+
 - **32. Steve vs. 33. Chris** - I'm pretty sure Steve's mob goonies threatened to kill the voters here. Chris wins 5-2 **Chris advances**
 
 ## Voting for Next Round
