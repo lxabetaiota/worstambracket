@@ -2,6 +2,8 @@
 
 [Link to the bracket](https://challonge.com/betaiotaworstam)
 
+Scroll to the bottom for voting for next round
+
 ## Current Status
 
 In the second round. Results from the previous round:
