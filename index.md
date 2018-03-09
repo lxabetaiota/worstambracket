@@ -4,9 +4,56 @@
 
 Scroll to the bottom for voting for next round
 
+## Voting
+
+- **1. Powers vs. 16. Nick Crowley** - [Link](https://www.strawpoll.me/15235323)
+- **8. Dan Jordan vs. 9. Tommy Leblanc** - [Link](https://www.strawpoll.me/15235334)
+- **4. Hunter vs. 13. Blake** - [Link](https://www.strawpoll.me/15235341)
+- **5. Peter Nelson vs. 21. Mike George** - [Link](https://www.strawpoll.me/15235343)
+- **2. Kunetz vs. 18. Angelo** - [Link](https://www.strawpoll.me/15235346)
+- **7. Dylan vs. 10. Lonny** - [Link](https://www.strawpoll.me/15235349)
+- **3. Haralambos vs. 14. Will Thompson** - [Link](https://www.strawpoll.me/15235354)
+- **6. Knatz vs. 11. Tom Hunter** - [Link](https://www.strawpoll.me/15235361)
+
 ## Current Status
 
-In the second round. Results from the previous round:
+On to the Sweet Sixteen! Results from Round 2:
+
+- **1. Powers vs. 33. Chris** - **Powers Advances 7-0** - No shock here as the first showing of our overall number 1 seed is a quick dismantling of Chrith with a Swiffer swipe to the mouth.
+
+- **16. Crowley vs. 48. Crean** - **Crowley Advances 7-1** - Crean's cinderalla run is stopped before it even began. No dunk city for Butters.
+
+- **8. Dan Jordan vs. 40. Climan** - **Dan Jordan Advances 5-2** - Despite complaining about the integrity of the tournament, Climan still gets dropped rather easily by Dan.
+
+- **9. Tommy Leblanc vs. 41. Greg** - **Tommy Leblanc Advances 3-2** - Greg nearly pulls off one of the upsets of the tournament in a grueling, low-scoring affair that reminds one more of a soccer game than an AM vote.
+
+- **4. Hunter vs. 36. Klem** - **Hunter Advances 8-1** - Hunter's mysterious dissapearance last year has no effect on his tournament efficiency. He destroys Klem, but Klem ended up losing his $420 bet on a shutout.
+
+- **5. Peter Nelson vs. 28. Joe Camel** - **Peter Nelson Advances 5-3** - Joe's close connection to AM of the year candidate Joe Kunetz probably grabbed him some votes, by Peter still takes him out.
+
+- **13. Blake vs. 45. Eisenlord** - **Blake Advances 6-1** - Eisenlord was unfortunately too big to fit in the Cinderalla outfit I bought for him and was unable to make a longer run.
+
+- **12. Andrew Vena vs. 21. Mike George** - **Mike George Advances in OT 4-4** - Our second tie of the tournament! Mike George advances in the super fair, well thought out tiebreaker of Cee-Lo.
+
+- **2. Kunetz vs. 34. Pete Lithen** - **Kunetz Advances 9-0** - 52% of bracket challenge brackets had Kunetz winning it all, and he shows up in his first appearance with a shutout win over Pete.
+
+- **15. Sean vs. 18. Angelo** - **Angelo Advances 4-2** - Bobby was clearly a bad influence on Angelo.
+
+- **7. Dylan vs. 26. Keith** - **Dylan Advances 8-0** - Is this a dark horse in the making? Dylan impresses with a shutout.
+
+- **10. Lonny vs. 23. Cisco** - **Lonny Advances 5-2** - I think Cisco bribed the voters with free personal training sessions, but we're a corrupt organization so we don't really care. Take it up with the FBI.
+
+- **3. Haralambos vs. 35. Erik** - **Haralambos Advances 5-1** - Erik made it further than most expected, but it was not enough to take down the juggernaut that is Bobby Brackets
+
+- **14. Will Thompson vs. 19. Sabrick** - **Will Thompson Advances 6-3** - Be on the lookout for blackout Sabrick in mourning of his brutal loss to Will.
+
+- **6. Knatz vs. 27. James** - **Knatz Advances 6-1** - The family matchup ends in tears. They decided to go with a classic Snoop Dogg smoke off and Knatz easily takes down James' lungs.
+
+- **11. Tom Hunter vs. 22. Dave** - **Tom Hunter Advances 4-3** - Some fans are citing PEDs taken by Dave while in New Zealand, but we think it makes for good TV and will uphold the results of this matchup.
+
+
+
+Results from Round 1:
 
 - **22. Dave vs. 43. Nico** - Closer than expected, with Dave pulling out a 6-3 victory **Dave advances**
 
@@ -41,21 +88,3 @@ In the second round. Results from the previous round:
 - **16. Crowley vs. 49. Cosgrove** - Crowley wins 6-1 in may be the last installment of the Ginger Bowl before he loses the rest of his hair **Crowley advances**
 
 - **32. Steve vs. 33. Chris** - I'm pretty sure Steve's mob goonies threatened to kill the voters here. Chris wins 5-2 **Chris advances**
-
-## Voting for Next Round
-- **1. Powers vs. 33. Chris** - [Link](https://www.strawpoll.me/15227784)
-- **16. Crowley vs. 48. Crean** - [Link](https://www.strawpoll.me/15227807)
-- **8. Dan Jordan vs. 40. Climan** - [Link](https://www.strawpoll.me/15227816)
-- **9. Tommy Leblanc vs. 41. Greg** - [Link](https://www.strawpoll.me/15227821)
-- **4. Hunter vs. 36. Klem** - [Link](https://www.strawpoll.me/15227833)
-- **13. Blake vs. 45. Eisenlord** - [Link](https://www.strawpoll.me/15227839)
-- **5. Peter Nelson vs. 28. Joe Camel** - [Link](https://www.strawpoll.me/15227854)
-- **12. Andrew Vena vs. 21. Mike George** - [Link](https://www.strawpoll.me/15227860)
-- **2. Joe Kunetz vs. 34. Pete Lithen** - [Link](https://www.strawpoll.me/15227873)
-- **15. Sean vs. 18. Angelo** - [Link](https://www.strawpoll.me/15227883)
-- **7. Dylan vs. 21. Keith** - [Link](https://www.strawpoll.me/15227892)
-- **10. Lonny vs. 23. Cisco** - [Link](https://www.strawpoll.me/15227908)
-- **3. Haralambos vs. 35. Erik** - [Link](https://www.strawpoll.me/15227915)
-- **14. Will Thompson vs. 19. Sabrick** - [Link](https://www.strawpoll.me/15227923)
-- **6. Knatz vs. 27. James** - [Link](https://www.strawpoll.me/15227928)
-- **11. Tom Hunter vs. 22. Dave** - [Link](https://www.strawpoll.me/15227935)
