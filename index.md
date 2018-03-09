@@ -2,8 +2,6 @@
 
 [Link to the bracket](https://challonge.com/betaiotaworstam)
 
-Scroll to the bottom for voting for next round
-
 ## Voting
 
 - **1. Powers vs. 16. Nick Crowley** - [Link](https://www.strawpoll.me/15235323)
