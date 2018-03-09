@@ -13,6 +13,12 @@
 - **3. Haralambos vs. 14. Will Thompson** - [Link](https://www.strawpoll.me/15235354)
 - **6. Knatz vs. 11. Tom Hunter** - [Link](https://www.strawpoll.me/15235361)
 
+### Schedule
+- Sweet Sixteen ends 3/12/18
+- Elite Eight ends 3/13/18
+- Final Four ends 3/14/18
+- Championship ends 3/15/18
+
 ## Current Status
 
 On to the Sweet Sixteen! Results from Round 2:
