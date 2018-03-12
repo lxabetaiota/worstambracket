@@ -4,24 +4,39 @@
 
 ## Voting
 
-- **1. Powers vs. 16. Nick Crowley** - [Link](https://www.strawpoll.me/15235323)
-- **8. Dan Jordan vs. 9. Tommy Leblanc** - [Link](https://www.strawpoll.me/15235334)
-- **4. Hunter vs. 13. Blake** - [Link](https://www.strawpoll.me/15235341)
-- **5. Peter Nelson vs. 21. Mike George** - [Link](https://www.strawpoll.me/15235343)
-- **2. Kunetz vs. 18. Angelo** - [Link](https://www.strawpoll.me/15235346)
-- **7. Dylan vs. 10. Lonny** - [Link](https://www.strawpoll.me/15235349)
-- **3. Haralambos vs. 14. Will Thompson** - [Link](https://www.strawpoll.me/15235354)
-- **6. Knatz vs. 11. Tom Hunter** - [Link](https://www.strawpoll.me/15235361)
+- **1. Powers vs. 9. Tommy Leblanc** - [Link](https://www.strawpoll.me/15256549)
+- **4. Hunter vs. 5. Peter Nelson** - [Link](https://www.strawpoll.me/15256556)
+- **2. Kunetz vs. 7. Dylan** - [Link](https://www.strawpoll.me/15256565)
+- **3. Haralambos vs. 6. Knatz** - [Link](https://www.strawpoll.me/15256573)
 
 ### Schedule
-- Sweet Sixteen ends 3/12/18
 - Elite Eight ends 3/13/18
 - Final Four ends 3/14/18
 - Championship ends 3/15/18
 
 ## Current Status
 
-On to the Sweet Sixteen! Results from Round 2:
+We have reached the Elite Eight! 
+
+**Results from the Sweet Sixteen:**
+
+- **1. Powers vs. 16. Crowley** - **Powers Advances 7-2** - Crowleys uses Rogaine! It's not very effective.
+
+- **8. Dan Jordan vs. 9. Tommy Leblanc** - **Tommy Advances 5-4** - Despite the voters knowing absolutely nothing about Tommy's AM Resume and a series of injuries stemming from constant falls into the circle, he continues to drop all challengers.
+
+- **4. Hunter vs. 13. Blake** - **Hunter Advances 7-2** - Unlike Kansas, this 4 seed has some actual merit in their placement. Clearly, consistently pissing off brothers is worse than ghosting during the process.
+
+- **5. Peter Nelson vs. 21. Mike George** - **Peter Advances 6-3** - Mike "Mitch "Pledge City" Dernity" George finally takes a tumble out of the tournament, but this is a run that voters will be talking about for years to come. His coach already has rumors linking him to Phi Sig and Sig Ep next season.
+
+- **2. Kunetz vs. 18. Angelo** - **Kunetz Advances 7-0** - We've heard stories that Kunetz entered this round on drugs in a manner similar to Dock Ellis' acid no-hitter, but he still pulls off a shut out victory. There's also no rules against it because it brings in higher ratings.
+
+- **7. Dylan vs. 10. Lonny** - **Dylan Advances 7-2** - One ghost goes down, but the other keeps on keeping on.
+
+- **3. Haralambos vs. 14. Will Thompson** - **Haralambos Advances 6-3** - Haralambos did not let the embarassing defeat of his fellow Greek affect him in this matchup. We will be releasing an insider article and interview on Bobby's strictly olive diet tomorrow, so be sure to check back.
+
+- **6. Knatz vs. 11. Tom Hunter - **Knatz Advances in OT 4-4** - Each round has had a tie so far! Rob Knatz had plenty of experience with cee-lo in A1 and pulls out an easy victory in OT.
+
+**Results from Round 2:**
 
 - **1. Powers vs. 33. Chris** - **Powers Advances 7-0** - No shock here as the first showing of our overall number 1 seed is a quick dismantling of Chrith with a Swiffer swipe to the mouth.
 
@@ -57,7 +72,7 @@ On to the Sweet Sixteen! Results from Round 2:
 
 
 
-Results from Round 1:
+**Results from Round 1:**
 
 - **22. Dave vs. 43. Nico** - Closer than expected, with Dave pulling out a 6-3 victory **Dave advances**
 
