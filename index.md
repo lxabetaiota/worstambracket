@@ -4,19 +4,28 @@
 
 ## Voting
 
-- **1. Powers vs. 9. Tommy Leblanc** - [Link](https://www.strawpoll.me/15256549)
-- **4. Hunter vs. 5. Peter Nelson** - [Link](https://www.strawpoll.me/15256556)
-- **2. Kunetz vs. 7. Dylan** - [Link](https://www.strawpoll.me/15256565)
-- **3. Haralambos vs. 6. Knatz** - [Link](https://www.strawpoll.me/15256573)
+- **1. Powers vs. 4. Hunter** - [Link](https://www.strawpoll.me/15262731)
+- **2. Kunetz vs. 3. Haralambos** - [Link](https://www.strawpoll.me/15262741)
 
 ### Schedule
-- Elite Eight ends 3/13/18
 - Final Four ends 3/14/18
 - Championship ends 3/15/18
 
 ## Current Status
 
-We have reached the Elite Eight! 
+We have reached the Final Four!
+
+**Results from the Elite Eight:**
+
+- **1. Powers vs. 9. Tommy Leblanc** - **Powers Advances 7-0** - Powers sent Tommy links to investing apps, links to links he posted on LinkedIn, and beautifully crafted English major wordstuffs until he succumbed under the gross weight of intelligence and annoyance. I visited Tommy to see if he was okay and found him sitting in an armchair wearing 4 different hockey jerseys at the same time and switching between a documentary of the US Olympic hockey team beating Russia and a black and white replay of a Maple Leafs game.
+
+- **4. Hunter vs. 5. Peter Nelson** - **Hunter Advances 6-1** - I'm starting to think the voters are keeping Hunter in the tournament just to see his sister cheering him on from the sidelines. When asked where he was going to go from here, Peter Nelson responded "I'm going to buy every single one of this year's model of my favorite cigar from the local smoke shop and chain smoke them until my lungs give out."
+
+- "**2. Kunetz vs. 7. Dylan** - **Kunetz Advances 8-0** - Kunetz continues to play by his own rules. Dylan mysteriously disappeared and was replaced with someone named Cole. Somehow the voters didn't notice the difference and the round played out as it normally would.
+
+- **3. Haralambos vs. 6. Knatz** - **Haralambos Advances 7-1** - Rumor has it that Mike George made a surprise visit to Knatz in the middle of the night and told him to cut the shit and protect the candle like it was his fucking brother. I think it more likely that Bobby went around bribing certain officials who will not be named to assure his place in the Final 4. Classic Greek strategy right there.
+
+All 1 seeds made the final 4. The Selection Committee happily takes all credit for a completely fair, non-controversial tournament. We would also like to remind everyone to donate via Venmo to keep these brackets up and running! We've just received a lawsuit from Mitch Dernity LLC, so we can use all the funds we can get.
 
 **Results from the Sweet Sixteen:**
 
